@@ -8,4 +8,4 @@ Senior Product Manager and AI Product Builder
 
 🛠️ I use AI coding tools to turn product ideas into functional prototypes
 
-🎓 ISB MBA | HEC Paris International Exchange
+🎓 ISB MBA | HEC Paris International Exchange | NIT Jaipur
